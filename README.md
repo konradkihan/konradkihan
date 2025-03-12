@@ -1,10 +1,3 @@
-# 💫 About Me:
-🔭 I’m currently working on my own startup company - Understand.IT
-
-🌱 I’m currently learning about cybersecurity and penetration testing.
-
-🤩 I love experimenting with IT systems - learning every single day.
-
 📫 How to reach me: you are welcome to contact me on Discord or Linkedin ⬇️
 
 ## 🌐 Socials:
