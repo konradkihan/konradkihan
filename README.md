@@ -1,4 +1,5 @@
 System admin from 9 to 5, indie software developer from 5 to 9.
+
 📫 How to reach me: you are welcome to contact me on Discord or Linkedin ⬇️
 
 ## 🌐 Socials:
